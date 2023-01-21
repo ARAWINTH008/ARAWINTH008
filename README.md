@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ARAWINTH008
 - 👀 I’m interested in webdesigning & Create New Things...etc
-- 🌱 I’m currently learning [computer science degree]
+- 🌱 I’m currently finished my [computer science degree]
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me in e-mail arawinthamarjothi@gamil.com
 
